@@ -1,0 +1,1 @@
+I have designed the UI for the website representing our college's Technity Club.I have used Figma to do this UI design.It's lot of fun in designing this website and i have learned a lot in it as it is my first UI design.Had a great experience.😎😎
