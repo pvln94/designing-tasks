@@ -1,0 +1,1 @@
+I have designed 3 posters for Fresher's Party (for upcoming juniors),for Ganesh Chaturthi and for Amma's Birthday with the help of Figma and Canva.It's very intresting and had a good work in these holidays.I really loved doing this Poster Designing and learnt a lot in it.😃😃
