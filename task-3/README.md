@@ -1,0 +1,1 @@
+I have created a short video montage using different clips i have of Amrita University,added text and captions to a video and applied filters and color corrections to the video using veed.io online website.I have learnt how to design a video (#Became a video maker and editor 😁😎 ).
